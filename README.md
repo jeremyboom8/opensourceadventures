@@ -1,1 +1,1 @@
-Open Source Adventure by Team weAdventure
+Open Source Adventures by Team weAdventure
